@@ -284,4 +284,4 @@ Goggins believes the vast majority of humans today are operating at about 40 per
 
 "The message of the Torah is that you never arrive. It is more about the journey than the destination." Rabbi Shlomo Einhorn
 
-Aliyah (עלייה) translates to ascent in Hebrew. It is also the word used for when Jews return to Israel. The Law of Return was passed unanimously by the Israeli Parliament, the Knesset, on July 5th 1950, a date chosen to coincide with the death of Theodor Herzl (Wikipedia).   
+Aliyah (עלייה) translates to ascent in Hebrew. It is also the word used for when Jews return to Israel. The Law of Return was passed unanimously by the Israeli Parliament, the Knesset, on July 5th 1950. 
