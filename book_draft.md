@@ -280,5 +280,8 @@ Prioritizing what to focus on in life is arguably the greatest challenge. Rabbi 
 
 Goggins believes the vast majority of humans today are operating at about 40 percent of their ultimate capabilities. Through studying his mind and its response to being pushed so much further than it was willing to go he found that he was able to complete ultramarathons with all kinds of injuries including at one point a broken leg. Although it probably isn't advisable to go to the lengths that Goggins has he has been able to demonstrate that most of us are leaving a large percentage of our capabilities on the table. We listen to our minds when it says we are at maximum effort when in reality our minds are lying to us. The pursuit of maximizing one's potential never ends and although Goggins is well past his physical peak at approaching 50 years old he still completes ultramarathons and pursues new challenges that people half his age would cower from. He named his second book "Never Finished". With approximately 40 percent of the world's Jewish population residing in Israel in 2024 the project of Jewish revival is far from finished and there is still a large part of Jewish capability left untapped.
 
-"The message of the Torah is that you never arrive. It is more about the journey than the destination." Rabbi Shlomo Einhorn 
+## Aliyah and the ascent to Jerusalem
 
+"The message of the Torah is that you never arrive. It is more about the journey than the destination." Rabbi Shlomo Einhorn
+
+Aliyah (עלייה) translates to ascent in Hebrew. It is also the word used for when Jews return to Israel. The Law of Return was passed unanimously by the Israeli Parliament, the Knesset, on July 5th 1950, a date chosen to coincide with the death of Theodor Herzl (Wikipedia).   
