@@ -306,6 +306,8 @@ The next building block after determining the lands of the nation state were to 
 
 "We have no flag, and we need one. If we desire to lead many men, we must raise a symbol above their heads." Theodor Herzl
 
-There was no flag (degel, דֶּגֶל) to inherit from the times before Jerusalem was seized by the Romans two millennia ago and in the centuries since the design and pronouncement of a unique, recognizable flag had become a rite of passage for any new nation state. Herzl himself suggested a white flag with a star in the center but a gold star rather than a blue one. The color of the Star of David (Magen David, מגן דוד) at the center of the Israeli flag was ultimately chosen to be the shade of blue used by the Tallit (טַלִּית), the traditional Jewish prayer shawl.         
+There was no flag (degel, דֶּגֶל) to inherit from the times before Jerusalem was seized by the Romans two millennia ago and in the centuries since the design and pronouncement of a unique, recognizable flag had become a rite of passage for any new nation state. Herzl himself suggested a white flag with a star in the center but a gold star rather than a blue one. The color of the Star of David (Magen David, מגן דוד) at the center of the Israeli flag was ultimately chosen to be the shade of blue used by the Tallit (טַלִּית), the traditional Jewish prayer shawl. The Star of David itself is made up of two triangles. The triangle's three corners represent the relationship between G*d, Israel and the Torah with the triangle pointing upwards representing people working for G*d and the triangle pointing downwards representing G*d working for the people. The blue stripes at the top and bottom of the flag also mirror those on the Tallit. The second President of the Zionist Organization David Wolffsohn stated "Let us take this Tallit from its bag and unroll it before the eyes of Israel and the eyes of all nations".
 
-  
+## Resurrecting the building blocks of a nation state (Government)
+
+ 
