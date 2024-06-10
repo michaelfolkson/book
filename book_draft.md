@@ -318,4 +318,8 @@ One indisputable flaw with Israel's Declaration of Independence was including th
 
 ## Resurrecting the building blocks of a nation state (Military)
 
+"Perhaps we are all Aladdins, every novel idea is a kind of magic lamp able to bring forth the creative spirit... till it becomes obsolete. Perhaps herein lies the real achievement of victory when the victor becomes dispensable." Ze'ev Jabotinsky
+
+Every nation state needs an organized, cohesive and united military and Israel critically needed one immediately on conception. No sooner had David Ben-Gurion declared independence and the British Mandate been terminated than the concept of a Jewish state was under attack by surrounding Arab states. Hence somehow Ben-Gurion had to conjure a military into being to defend it overnight which is of course impossible. Instead the ground work was laid in the previous decades to cobble together a fighting force that could unite against a common enemy seeking to asphyxiate it from birth. The Herzl of the defense question was (arguably, in a military context where the focus is less on particular individuals) Ze'ev Jabotinsky.   
+
                                            
