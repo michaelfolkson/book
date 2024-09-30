@@ -354,4 +354,6 @@ The Hebrew word for sin (חטא) means something akin to a missed opportunity, l
 
 ## Why don't you commit suicide?
 
-In Viktor Frankl’s Man’s Search For Meaning the preface describes the author-psychiatrist asking his patients “Why do you not commit suicide?”. It is a question I’ve struggled with for over a decade now even though I only recently opened this book. I still don’t have an answer. The best I can come up with is to not to disappoint G*d. But everyone has an expiry date and becomes surplus to requirements eventually. A decade is a long enough time to assess whether you have reached your expiry date. 
+In Viktor Frankl’s Man’s Search For Meaning the preface describes the author-psychiatrist asking his patients “Why do you not commit suicide?”. It is a question I’ve struggled with for over a decade now even though I only recently opened this book. I still don’t have an answer. The best I can come up with is to not to disappoint G*d. But everyone has an expiry date and becomes surplus to requirements eventually. A decade is a long enough time to assess whether you have reached your expiry date.
+
+I want to find out what the f\*\*\* I should have done in this f\*\*\*ed up scenario. 
