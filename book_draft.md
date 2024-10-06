@@ -352,8 +352,6 @@ Whatever the level of abstraction, whether it be at the level of the individual,
 
 The Hebrew word for sin (חטא) means something akin to a missed opportunity, like an arrow missing its mark (chabad.org). The archery or dart board that presents itself to each generation is different. The board that presented itself to Theodor Herzl was different to the board that presented itself to Ze'ev Jabotinsky as was the board that initially presented itself to Benjamin Netanyahu. A bullseye in Herzl's time represented a different set of objectives and overcoming a different set of challenges to a bullseye in Netanyahu's time. Maimonides ("The Rambam"), the 12th century rabbi who compiled a list of the 613 commandments (mitzvot, מצוות), described the rebuilding of the Holy Temple as a mitzvah that is "binding for all generations". He believed that sacrifices should be offered on the altar there even while the Temple is not built. In recent centuries it is a common belief that each generation in which the Temple isn't rebuilt it is as if that generation destroyed it. Maimonides also stated in his rulings that performing the commandments should not be dependent on the coming of Moshiach (מָשִׁיחַ) and that they should be performed to the best of abilities under all conditions. The coming of Moshiach is left to G*d but earthly commandments are within man's purview.
 
-## Why don't you commit suicide?
+## Time to find out
 
-In Viktor Frankl’s Man’s Search For Meaning the preface describes the author-psychiatrist asking his patients “Why do you not commit suicide?”. It is a question I’ve struggled with for over a decade now even though I only recently opened this book. I still don’t have an answer. The best I can come up with is to not to disappoint G*d. But everyone has an expiry date and becomes surplus to requirements eventually. A decade is a long enough time to assess whether you have reached your expiry date.
-
-I want to find out what the f\*\*\* I should have done in this f\*\*\*ed up scenario. 
+YOLO 
